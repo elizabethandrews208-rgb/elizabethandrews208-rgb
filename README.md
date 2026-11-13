@@ -110,8 +110,7 @@ Grade: Upper Credit \| 2016
 
 ## Additional Professional Training
 
--   Chartered Insurance Institute of Nigeria (CIIN) -- CIFM, 2018
-    **\[Confirm exact certificate title\].**
+- **Bank Assurance Certification** -- Chartered Insurance Institute of Nigeria (CIIN), College of Insurance and Financial Management (CIFM) | 2018
 
 ## Professional Strengths
 
@@ -131,5 +130,3 @@ Operations and Project Coordination.
 ------------------------------------------------------------------------
 
 **References:** Available upon request.
-
-> **Before publishing:** Confirm the exact title of the CIIN credential. Review the responsibilities to ensure they accurately reflect your work.
